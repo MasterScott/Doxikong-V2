@@ -32,7 +32,6 @@ Cracked.to -- https://cracked.to/ANG
 
 ![](https://media.giphy.com/media/fZVuY06FTswknrBCt8/giphy.gif)
 
-Output~
 ![](https://media.giphy.com/media/qMHoDd7TnBOz0Qcqca/giphy.gif)
 
 
